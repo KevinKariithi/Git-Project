@@ -3,5 +3,4 @@
 ![](https://i.ibb.co/F38F21R/LinkedIn.jpg)
 
 ### [Connect with me 💬](https://kunalkushwaha.com) 
-This is a test
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=kunal-kushwaha.kunal-kushwaha)
